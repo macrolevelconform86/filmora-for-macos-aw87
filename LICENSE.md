@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Filmora for macOS script with Filmora for macOS advanced Script: keyframe-animation & lower-thirds. Featuring keyframe-animation and lower-thirds, it's the best
 
 
 
